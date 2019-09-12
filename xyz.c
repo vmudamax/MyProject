@@ -1,0 +1,10 @@
+s is basic program
+bangalore is green city
+xxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxyyyyyy
+yyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyyy
+zzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzzz
+
+
+
+
+Today is sep 12th
